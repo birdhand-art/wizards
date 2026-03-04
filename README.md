@@ -1,1 +1,3 @@
-Hey gang
+hey gang
+pls upload your wizard + any associated swag here!
+we should have some time in class together to work on landscape and magic effects, pls spam me in the gchat if theres any questions!
